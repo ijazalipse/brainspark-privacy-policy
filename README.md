@@ -1,1 +1,0 @@
-# brainspark-privacy-policy
